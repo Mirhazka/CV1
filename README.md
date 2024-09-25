@@ -2,7 +2,7 @@
 ![PP](https://i.pinimg.com/280x280_RS/28/8d/be/288dbe0be7de2a46f564f17335ab153a.jpg)
 
 ## Présentation
-* GRIBONVAL Sybill
+* Sybill
 * Mérignac
 * Permis B - Véhiculée
 * 32 ans
